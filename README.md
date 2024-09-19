@@ -1,1 +1,1 @@
-Sigma Eta Pi @ University of California, Irvine
+# Sigma Eta Pi @ University of California, Irvine
